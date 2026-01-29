@@ -48,7 +48,7 @@ Manisha Agrawal
 Vikas Chaubey  
 Deepak Rawat  
 Shipra Saxena  
-
+sandeep minchala
 ---------------------------------
 Contributors (Industry)
 ---------------------------------
